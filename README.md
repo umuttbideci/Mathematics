@@ -1,4 +1,4 @@
 # Mathematics
 
 
-UmuT Bideci 2022-2023 MAtematik proje scriptleri ve indirme linkleri.
+Umut Bideci 2022-2023 Matematik proje scriptleri ve indirme linkleri.
